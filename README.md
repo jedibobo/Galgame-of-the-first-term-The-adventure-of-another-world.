@@ -1,0 +1,1 @@
+# Galgame-of-the-first-term-The-adventure-of-another-world.
